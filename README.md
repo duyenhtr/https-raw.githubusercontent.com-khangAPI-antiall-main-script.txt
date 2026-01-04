@@ -1,0 +1,1 @@
+# https-raw.githubusercontent.com-khangAPI-antiall-main-script.txt
